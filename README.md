@@ -29,8 +29,8 @@
 <br/>
 
 ## Latest Instagram Posts
-<!-- INSTAGRAM-POST-LIST:START -->
-<!-- INSTAGRAM-POST-LIST:END -->
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
 
 <br/>
 <br/>
