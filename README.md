@@ -1,12 +1,12 @@
 <img src="https://media.giphy.com/media/BlWF2vzpIPB0A/giphy.gif"  width="250" align="right"/>
 
-### Hi there, I'm Erdeniz 👋
+## Hi there, I'm Erdeniz 👋
 
-## Web Developer | Streamer
+### Web Developer | Streamer
 
 <font color="yellow">You can find me at the middle of the night while drinking coffee and fixing js bugs</font>
 
-## Reach Me
+### Reach Me
 
 [<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitter.svg" />][twitter]
 [<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitch.svg" />][twitch]
