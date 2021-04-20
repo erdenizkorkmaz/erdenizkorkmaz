@@ -1,10 +1,12 @@
 <img src="https://media.giphy.com/media/BlWF2vzpIPB0A/giphy.gif"  width="250" align="right"/>
 
-## Hi there, I'm Erdeniz 👋
+## Hi there, I'm Erdeniz from Manchester 👋
 
 ### Web Developer | Streamer
 
 <font color="yellow">You can find me at the middle of the night while drinking coffee and fixing js bugs</font>
+
+<br/>
 
 ### Reach Me
 
@@ -23,6 +25,20 @@
 <img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/vue/vue.png">
 <img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png">
 <img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png">
+
+<br/>
+<br/>
+<br/>
+
+<details>
+    <summary>Github Stats</summary>
+    <img src="https://github-readme-stats.vercel.app/api?username=erdenizkorkmaz">
+</details>
+
+<details>
+    <summary>Most Used Languages</summary>
+    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=compact">
+</details>
 
 <br/>
 <br/>
@@ -46,19 +62,6 @@ Presented...](https://www.instagram.com/p/CN3OywXHR2z)
 Is it just me or is nothing seeming quite as ‘quick’ these days. The pandemic has adde...](https://www.instagram.com/p/CN3OZBRDe2E)
 - [🚨🧠If you haven't been introduced to The Master Regulatory System - Your Endocannabinoid System. It time to put your le...](https://www.instagram.com/p/CN3N-mCHGZH)
 <!-- BLOG-POST-LIST:END -->
-
-<br/>
-<br/>
-
-<details>
-    <summary>Github Stats</summary>
-    <img src="https://github-readme-stats.vercel.app/api?username=erdenizkorkmaz">
-</details>
-
-<details>
-    <summary>Most Used Languages</summary>
-    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=compact">
-</details>
 
 
 [twitter]: https://twitter.com/erdenizkorkmaz_
