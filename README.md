@@ -45,21 +45,21 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [🧠 #Innovacion de #Ideas y co-creacion con nuestros #clientes 👍 #caliescali #carrerasdelfuturo #decaliaehablabien #desa...](https://www.instagram.com/p/CN4hT6HhdTI)
-- [Apel pencanangan Zona Integritas Menuju Wilayah Birokrasi Bersih Melayani Puspenkum Kejaksaan RI pada hari Senin 19 Apri...](https://www.instagram.com/p/CN4hOvzn0pP)
-- [🤣
-Follow @coderz.hub 
-.
-.
-.
-.
+- ["Mon apprentissage n’a d’autre fruit que de me faire sentir combien il me reste à apprendre.”📚🏫
+#learning #explore  #Y...](https://www.instagram.com/p/CN5zvI8pFJc)
+- [Kkkkkkkkkkkk e o nome ainda sai o pior possível!!
 
-.
-#coding #programming #programmer #developer #python #code #javascript #coder #computer...](https://www.instagram.com/p/CN4hJtVhO2G)
-- [Giving a talk is amazing. You get to share to many people. You feel proud of your sharing. And you will also gain new fo...](https://www.instagram.com/p/CN4hIx1gTKK)
-- [Comment down the output of the following code without seeing explanation 👇🏼👇🏼👇🏼👇🏼👇🏼👇🏼👇🏼
-.
-Follow @codeguys...](https://www.instagram.com/p/CN4hGzaAO7x)
+#developer #variável #php #devops #programmer #javascript #programmin...](https://www.instagram.com/p/CN5z08ODIrf)
+- [Our business development managers are here to help 😁 #business #development #managers #podiatry #healthcare](https://www.instagram.com/p/CN5zyRlB9b6)
+- [Coaching brings out a mans potentials,Privilege to have some zealous Industrial training students on site.
+
+#Residential...](https://www.instagram.com/p/CN5ztjGAacQ)
+- [Lerne was die Grundlage des World Wide Web ist: HTML
+Icons: flaticon by Freepik
+•
+•
+•
+#html #html5 #fontend #frontenddev...](https://www.instagram.com/p/CN5ztHQAgZM)
 <!-- BLOG-POST-LIST:END -->
 
 
