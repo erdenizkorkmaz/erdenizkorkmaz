@@ -11,19 +11,18 @@
 [<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitter.svg" />][twitter]
 [<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitch.svg" />][twitch]
 [<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/instagram.svg" />][instagram]
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/linkedin.svg" />][linkedin]
 
 <br/>
 
 ## Techs I Use
 
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/typescript/typescript.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/javascript/javascript.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/angular/angular.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/react/react.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/vue/vue.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png">
-<img height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/typescript/typescript.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/javascript/javascript.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/angular/angular.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/react/react.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/vue/vue.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png">
+<img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png">
 
 <br/>
 <br/>
@@ -62,9 +61,8 @@ Is it just me or is nothing seeming quite as ‘quick’ these days. The pandemi
 </details>
 
 
-[twitter]: https://twitter.com/
-[twitch]: https://twitch.com/
-[instagram]: https://twitch.com/
-[linkedin]: https://linkedin.com/
+[twitter]: https://twitter.com/erdenizkorkmaz_
+[twitch]: https://www.twitch.tv/erdenizkorkmaz
+[instagram]: https://www.instagram.com/erdenizkorkmaz_
 
 
