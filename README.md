@@ -45,21 +45,19 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- ["Mon apprentissage n’a d’autre fruit que de me faire sentir combien il me reste à apprendre.”📚🏫
-#learning #explore  #Y...](https://www.instagram.com/p/CN5zvI8pFJc)
-- [Kkkkkkkkkkkk e o nome ainda sai o pior possível!!
+- [Secure your laptop 🔥
+If you like it please follow - @_code.junction_ 
+#codingbootcamp #codingislife #java #hacking #cod...](https://www.instagram.com/p/CN6c-_GgmzB)
+- [😶😶😶😶
+If you like it please follow - @_code.junction_ 
+#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN6c776gBeo)
+- [Staind glass protection up, Mirrors up, Callender for Group sessions and one on one practitioners availability is up. I ...](https://www.instagram.com/p/CN6c2GnAi9_)
+- [😂😂😂😂
+If you like it please follow - @_code.junction_ 
+#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN6c2I-AGU9)
+- [Happiness is now.
 
-#developer #variável #php #devops #programmer #javascript #programmin...](https://www.instagram.com/p/CN5z08ODIrf)
-- [Our business development managers are here to help 😁 #business #development #managers #podiatry #healthcare](https://www.instagram.com/p/CN5zyRlB9b6)
-- [Coaching brings out a mans potentials,Privilege to have some zealous Industrial training students on site.
-
-#Residential...](https://www.instagram.com/p/CN5ztjGAacQ)
-- [Lerne was die Grundlage des World Wide Web ist: HTML
-Icons: flaticon by Freepik
-•
-•
-•
-#html #html5 #fontend #frontenddev...](https://www.instagram.com/p/CN5ztHQAgZM)
+#health #values #wellness #spirituality #fitness #selfcare #mentalhealth #lifestyle #healthy #motivat...](https://www.instagram.com/p/CN6cyzHDoYm)
 <!-- BLOG-POST-LIST:END -->
 
 
