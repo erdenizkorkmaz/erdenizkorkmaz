@@ -45,13 +45,14 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [نزدیک به یک دهه هست که از معلمی من در#دانشگاههای #گیلان (#دانشگاه_آزاد_اسلامی #دانشگاه_پیام_نور #دانشگاه_غیرانتفاعی #فرا...](https://www.instagram.com/p/CN6ufvqAFcR)
-- [Meet the team day 3. Introducing Daniel our intermediate engineer. Daniel is only 21 year old and has worked for Linked ...](https://www.instagram.com/p/CN6xcwmBBKC)
-- [Our environment is important to give young people the opportunities to discover themselves. Improve and develop confiden...](https://www.instagram.com/p/CN6xZnJD_aT)
-- [Wildog Accessories K9 front replacement fitment by die Wildog fitment centre! For inquiries contact sales@wildog.co.za o...](https://www.instagram.com/p/CN6xYrol4dL)
-- [Pour completed today at Aquinas College Ringwood 🙌
+- [Final design drawings
 
-#finish #concrete #concreting #concretingmelbourne #melbourne #vict...](https://www.instagram.com/p/CN6xRc9lsNp)
+#djcad #contemporaryart #contemporaryjewellery #contemporaryjewellerydesign #jewellerydesign #des...](https://www.instagram.com/p/CN7GRu_sCSm)
+- [Small update. Very busy. Laminate supply came in so we can continue.  Finishing Batch for Airguns of Arizona USA and dur...](https://www.instagram.com/p/CN7GRLZhZqE)
+- [Above demo video is My Music Player App made using python tkinter  and pygame module, this is a desktop application.
+Do ...](https://www.instagram.com/p/CN7F1uJgNSF)
+- ["Samen met mijn vier medestudenten kreeg ik alle vrijheid om mijn eigen ontwikkeling vorm te geven. Mijn eigen pad uit t...](https://www.instagram.com/p/CN7GPNljTdy)
+- [Let us develop your software according to your needs. We are experienced in providing CRM software, ERP, Quality Managem...](https://www.instagram.com/p/CN7GOtaMUn9)
 <!-- BLOG-POST-LIST:END -->
 
 
