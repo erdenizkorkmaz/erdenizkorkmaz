@@ -45,14 +45,23 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Final design drawings
-
-#djcad #contemporaryart #contemporaryjewellery #contemporaryjewellerydesign #jewellerydesign #des...](https://www.instagram.com/p/CN7GRu_sCSm)
-- [Small update. Very busy. Laminate supply came in so we can continue.  Finishing Batch for Airguns of Arizona USA and dur...](https://www.instagram.com/p/CN7GRLZhZqE)
-- [Above demo video is My Music Player App made using python tkinter  and pygame module, this is a desktop application.
-Do ...](https://www.instagram.com/p/CN7F1uJgNSF)
-- ["Samen met mijn vier medestudenten kreeg ik alle vrijheid om mijn eigen ontwikkeling vorm te geven. Mijn eigen pad uit t...](https://www.instagram.com/p/CN7GPNljTdy)
-- [Let us develop your software according to your needs. We are experienced in providing CRM software, ERP, Quality Managem...](https://www.instagram.com/p/CN7GOtaMUn9)
+- [#Repost
+Why are you looking for other's #websites? It's time to make your own!!!! 
+#NettechIndia is providing the Best W...](https://www.instagram.com/p/CN7av0YKGEZ)
+- [#Plataformas, #Apps #Web,#Ecommerce, para #Android, #IOS y #Windows 📱 #caliescali #carrerasdelfuturo #decaliaehablabien...](https://www.instagram.com/p/CN7atXzB51D)
+- ["She quickly realized that this was not a place where her physical disability was a hindrance, she was equal to the othe...](https://www.instagram.com/p/CN7ashRLS8M)
+- [Some inspiration for you this Wednesday! NUWE
+.
+.
+.
+.
+.
+.
+.
+.
+.
+"#nuwe #developers #developer #programmer #programming #...](https://www.instagram.com/p/CN7ashHAWNm)
+- [#TMGmodel #Veronika_Glinskaya start #working with #N10 #model #management #Shenzhen  #world #top #fashion #famous #perso...](https://www.instagram.com/p/CN7alKsjvzx)
 <!-- BLOG-POST-LIST:END -->
 
 
