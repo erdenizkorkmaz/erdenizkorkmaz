@@ -45,19 +45,13 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Secure your laptop 🔥
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #cod...](https://www.instagram.com/p/CN6c-_GgmzB)
-- [😶😶😶😶
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN6c776gBeo)
-- [Staind glass protection up, Mirrors up, Callender for Group sessions and one on one practitioners availability is up. I ...](https://www.instagram.com/p/CN6c2GnAi9_)
-- [😂😂😂😂
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN6c2I-AGU9)
-- [Happiness is now.
+- [نزدیک به یک دهه هست که از معلمی من در#دانشگاههای #گیلان (#دانشگاه_آزاد_اسلامی #دانشگاه_پیام_نور #دانشگاه_غیرانتفاعی #فرا...](https://www.instagram.com/p/CN6ufvqAFcR)
+- [Meet the team day 3. Introducing Daniel our intermediate engineer. Daniel is only 21 year old and has worked for Linked ...](https://www.instagram.com/p/CN6xcwmBBKC)
+- [Our environment is important to give young people the opportunities to discover themselves. Improve and develop confiden...](https://www.instagram.com/p/CN6xZnJD_aT)
+- [Wildog Accessories K9 front replacement fitment by die Wildog fitment centre! For inquiries contact sales@wildog.co.za o...](https://www.instagram.com/p/CN6xYrol4dL)
+- [Pour completed today at Aquinas College Ringwood 🙌
 
-#health #values #wellness #spirituality #fitness #selfcare #mentalhealth #lifestyle #healthy #motivat...](https://www.instagram.com/p/CN6cyzHDoYm)
+#finish #concrete #concreting #concretingmelbourne #melbourne #vict...](https://www.instagram.com/p/CN6xRc9lsNp)
 <!-- BLOG-POST-LIST:END -->
 
 
