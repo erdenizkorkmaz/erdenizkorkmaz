@@ -45,20 +45,23 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [This is 💯
+- [Crazy or ambitious?
 
-Build Our Empire🙌🏼
+Crazy ambitious, maybe? 
 
-#womensupportingwomen #womensupportingwomeninbusiness #womenempowerment #entrepreneur ...](https://www.instagram.com/p/CN8Yu89laz_)
-- [Thompson RA, Nelson CA. Developmental Science and the media: Early brain development. Am Psychol. 2001; 56:5-15.#develop...](https://www.instagram.com/p/CN8YpmjnEaZ)
-- [#JustListed | 1087 Makara Road, Makara Beach | by Hamish Drumm Real Estate Agent & Auctioneer 
+With all this beautiful world has to offer, I want to experience it ... T...](https://www.instagram.com/p/CN9B-RLnV3Z)
+- [Day #74 0f #100daysofcode🧠 
+#webdevelopment #webdesign #webdeveloper #html #website #coding #programming #css #javascri...](https://www.instagram.com/p/CN9B5pBp7-I)
+- [Yesterday I posted three cards from the #CrowTarot with the promise to reveal them and their meanings.  For those who pi...](https://www.instagram.com/p/CN9B0sGne5S)
+- [Javascript console methods
+Comment below if you like this post
+Like share save
 
-Calling all artists, oce...](https://www.instagram.com/p/CN8YjfOg8uL)
-- [$50K prize. 4 competing companies. 3 judges. 1 winner.
-We are competing in the @alabamalaunchpad Cycle 1 2021 Seed Stage...](https://www.instagram.com/p/CN8Yec-LL2s)
-- [🤞
+Follow @developer_decode 
 
-#programming #programacion #developerlife #development #webeex #softwaredeveloper #engineering](https://www.instagram.com/p/CN8YW7CJyqg)
+ #javascript ...](https://www.instagram.com/p/CN9BtBkheq9)
+- [Real Hacking Set Up but Hacking Means Ethical Hacking Not Bad Hacking ,
+ I Like Bug Hunting , Play CTF , Android Pentest...](https://www.instagram.com/p/CN9BpnCMIMU)
 <!-- BLOG-POST-LIST:END -->
 
 
