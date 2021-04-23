@@ -45,23 +45,28 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Yes 😂😂
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN_m6G4ghYy)
-- [🤔🤔🙄🙄
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN_m27TA_Kh)
-- [Follow @_boys_sports_page for more features of boys in sports!
+- [Lately I got to provide some eye-hand coordination (and stress causing and -reducing) sessions for the underage goalies ...](https://www.instagram.com/p/CN_7g3OhMVj)
+- [At Vyshnavie Natya Centre we know to analyze the talents and skills of the students and offer a unique way of practice. ...](https://www.instagram.com/p/CN_7evuJGvo)
+- [Follow @erroronline69 and Tag Friends for more.
+. 
+. 
+. 
+#programmer #programming #coding #developer #code 
+#coder #prog...](https://www.instagram.com/p/CN_7cZIgYmD)
+- [Comment your favourite book
 
-Tag 🏷 @_boys_sports_page to be featured 
+"Once you learn to read, you will be forever free "
+- Frederick Douglass
 
-Make sure you...](https://www.instagram.com/p/CN_mz7SsRbT)
-- [😶😶😶😶
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN_mzdLAqGk)
-- [😂😂😂😂
-If you like it please follow - @_code.junction_ 
-#codingbootcamp #codingislife #java #hacking #codinglife #meme...](https://www.instagram.com/p/CN_mvNqgMsh)
+World Book Day, a...](https://www.instagram.com/p/CN_7bz9pME4)
+- [C++ Tips & Tricks part 3✅
+
+Swipe for more👉
+
+Save for later🔖 & Share with your friends 🙌
+
+Follow @_techcodes📌
+Follow ...](https://www.instagram.com/p/CN_7YpBAJnS)
 <!-- BLOG-POST-LIST:END -->
 
 
