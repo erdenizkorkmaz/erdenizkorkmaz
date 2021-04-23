@@ -45,17 +45,19 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Thank you for sharing this stunning image with us @suttonconstruction @studio30architects⠀⠀⠀⠀⠀⠀⠀⠀⠀
-.⠀⠀⠀⠀⠀⠀⠀⠀⠀
-.⠀⠀⠀⠀⠀⠀⠀⠀⠀...](https://www.instagram.com/p/COAQB8uNK0O)
-- [The human ability to change says “if you walk the path of doing, of trying, of failing and learning, then you will win”....](https://www.instagram.com/p/COAQB-zHE0M)
-- [📚 I forgot how much I don’t enjoy studying & essays 🤦🏻‍♀️ #socialwork #socialworker #PEPs #practiceeducator #training...](https://www.instagram.com/p/COAP_-eB2p6)
-- [A simple life is a happy life. But as you grow up, things keep getting complicated and you struggle to keep them simple....](https://www.instagram.com/p/COAP_bzH8eA)
-- [From the day you are born,
-Everyone is trying to educate you something that has not worked in their lives.
- ~SADHGURU
+- [Controlled breathing and visualization a great way to start practices to prepare players! 
 
-#...](https://www.instagram.com/p/COAP7-vLP3S)
+#visualization #development ...](https://www.instagram.com/p/COBN_CuJMXM)
+- [Controlled breathing and visualization a great way to start practices to prepare players! 
+
+#visualization #development ...](https://www.instagram.com/p/COBN-jDpXrQ)
+- [Boker Magnum - New little knife to add to the collection :) 
+
+#knives #knife #knifecollection #knifecollectors #knifepor...](https://www.instagram.com/p/COBN-B_pIE8)
+- [Czy kiedykolwiek myślałam że będę pracować z domu?  Nie ‼️
+
+Wiecie co zawsze myślałam, że będę musiała pracować ciężko f...](https://www.instagram.com/p/COBN8YPggy7)
+- [Great progress being made on the front row houses in Ardoughan Woods. The last detached house in phase 2 is ready for sl...](https://www.instagram.com/p/COBN7hlFMrx)
 <!-- BLOG-POST-LIST:END -->
 
 
