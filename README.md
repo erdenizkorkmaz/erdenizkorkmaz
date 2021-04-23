@@ -45,19 +45,12 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Controlled breathing and visualization a great way to start practices to prepare players! 
-
-#visualization #development ...](https://www.instagram.com/p/COBN_CuJMXM)
-- [Controlled breathing and visualization a great way to start practices to prepare players! 
-
-#visualization #development ...](https://www.instagram.com/p/COBN-jDpXrQ)
-- [Boker Magnum - New little knife to add to the collection :) 
-
-#knives #knife #knifecollection #knifecollectors #knifepor...](https://www.instagram.com/p/COBN-B_pIE8)
-- [Czy kiedykolwiek myślałam że będę pracować z domu?  Nie ‼️
-
-Wiecie co zawsze myślałam, że będę musiała pracować ciężko f...](https://www.instagram.com/p/COBN8YPggy7)
-- [Great progress being made on the front row houses in Ardoughan Woods. The last detached house in phase 2 is ready for sl...](https://www.instagram.com/p/COBN7hlFMrx)
+- [Why do we waste so much time analyzing company culture??
+We need better People Analytics solutions that help everyone wo...](https://www.instagram.com/p/COBihuSjFCq)
+- [Don’t miss out on this mega opportunity to buy property in the most sought after overseas enclave of Grand City Kharian....](https://www.instagram.com/p/COBihbMgfrY)
+- [@ellandcricketclub #juniors in partnership with @procoachcricket was in full swing tonight. We absolutely love seeing th...](https://www.instagram.com/p/COBiOsYh-xa)
+- [End of Week 20 ☑️ #roofing #construction #buildingwork #buildingworks #renovation #building #extensions #decorating #dev...](https://www.instagram.com/p/COBiHiWLHxt)
+- [#roofing #construction #buildingwork #buildingworks #renovation #building #extensions #decorating #development #property...](https://www.instagram.com/p/COBiFvbrh8K)
 <!-- BLOG-POST-LIST:END -->
 
 
