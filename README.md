@@ -45,28 +45,17 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Lately I got to provide some eye-hand coordination (and stress causing and -reducing) sessions for the underage goalies ...](https://www.instagram.com/p/CN_7g3OhMVj)
-- [At Vyshnavie Natya Centre we know to analyze the talents and skills of the students and offer a unique way of practice. ...](https://www.instagram.com/p/CN_7evuJGvo)
-- [Follow @erroronline69 and Tag Friends for more.
-. 
-. 
-. 
-#programmer #programming #coding #developer #code 
-#coder #prog...](https://www.instagram.com/p/CN_7cZIgYmD)
-- [Comment your favourite book
+- [Thank you for sharing this stunning image with us @suttonconstruction @studio30architects⠀⠀⠀⠀⠀⠀⠀⠀⠀
+.⠀⠀⠀⠀⠀⠀⠀⠀⠀
+.⠀⠀⠀⠀⠀⠀⠀⠀⠀...](https://www.instagram.com/p/COAQB8uNK0O)
+- [The human ability to change says “if you walk the path of doing, of trying, of failing and learning, then you will win”....](https://www.instagram.com/p/COAQB-zHE0M)
+- [📚 I forgot how much I don’t enjoy studying & essays 🤦🏻‍♀️ #socialwork #socialworker #PEPs #practiceeducator #training...](https://www.instagram.com/p/COAP_-eB2p6)
+- [A simple life is a happy life. But as you grow up, things keep getting complicated and you struggle to keep them simple....](https://www.instagram.com/p/COAP_bzH8eA)
+- [From the day you are born,
+Everyone is trying to educate you something that has not worked in their lives.
+ ~SADHGURU
 
-"Once you learn to read, you will be forever free "
-- Frederick Douglass
-
-World Book Day, a...](https://www.instagram.com/p/CN_7bz9pME4)
-- [C++ Tips & Tricks part 3✅
-
-Swipe for more👉
-
-Save for later🔖 & Share with your friends 🙌
-
-Follow @_techcodes📌
-Follow ...](https://www.instagram.com/p/CN_7YpBAJnS)
+#...](https://www.instagram.com/p/COAP7-vLP3S)
 <!-- BLOG-POST-LIST:END -->
 
 
