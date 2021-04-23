@@ -45,23 +45,21 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [The pergola is starting to really take shape over here on the south end of the project. ⠀⠀⠀⠀⠀⠀⠀⠀⠀
-.⠀⠀⠀⠀⠀⠀⠀⠀⠀
-.⠀⠀⠀⠀⠀⠀⠀⠀⠀
-...](https://www.instagram.com/p/CN-9oiUBQ1F)
-- [my walk in Berlin
-#photoart  #artist #popart #trip #artmoderne #humor #funnyart #contemporaryart #art  #creative 
- #cool...](https://www.instagram.com/p/CN-9nMkgg8L)
-- [Whether you are looking to build a new custom home, produce a spec home for resale, or looking to invest in a residentia...](https://www.instagram.com/p/CN-9nRZHXHt)
-- [Why can’t we use People Analytics data to identify narcissistic behavior??
-We need better tools to help people be aware ...](https://www.instagram.com/p/CN-9TzDihx8)
-- [Last remaining opportunities at Omega Apartments. Contact Total Property Group today 
-Designed by Cottee Parker
+- [Breaking CRE news! #Prologis has completed the purchase of Hilltop Mall in Richmond, Ca.
+
+Why would Prologis, the larges...](https://www.instagram.com/p/CN_SPdvnkLm)
+- [Time tunnel Thursday
+Wow how time flies....this was our very first ever Dance Showcase,this was so much fun
 .
-.
-.
-.
-...](https://www.instagram.com/p/CN-9R6RFHhQ)
+NURTURING ...](https://www.instagram.com/p/CN_SHWJAhCD)
+- [We are very fortunate and grateful to serve such a first class community of OL throughout the DMV. The culture is contin...](https://www.instagram.com/p/CN_R9f5JHO6)
+- [🧠 #Innovacion de #Ideas y co-creacion con nuestros #clientes 👍 #caliescali #carrerasdelfuturo #decaliaehablabien #desa...](https://www.instagram.com/p/CN_R5-sBVza)
+- [Can you guess the tool !
+
+Let us know the correct answer in comments section below.
+
+For any business enquiry:
+☎️4231080...](https://www.instagram.com/p/CN_R0o2B88Q)
 <!-- BLOG-POST-LIST:END -->
 
 
