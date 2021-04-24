@@ -45,15 +45,24 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Did you know that the method in which we seek, acquire, and develop new skills needed to perform at a higher level and u...](https://www.instagram.com/p/COB3B3CF31d)
-- [Planning for the future. My dream since I was young has been to live in a place with crops of sugar cane and beautiful b...](https://www.instagram.com/p/COB23YgjgKj)
-- [My little niece at Netball Development, she did so well learning new skills ❤
+- [.
+.
+‏"لولاك يالله لم يَرْتعش في خاطري أملُ" 🤍.
+.
+.
+.
 
-#niece #netball #development #skills #sat...](https://www.instagram.com/p/COB2oG8B9Vk)
-- [📌 As you begin to market towards other areas of the world, start with those whose economies are booming. Here are just ...](https://www.instagram.com/p/COB2at5riZs)
-- [Vote for car 
-#votefor  #development 
-#siddipetwithtrs  #harishannasainyamtelangana #trskcrarmy #ktrtrs #warangal #telan...](https://www.instagram.com/p/COB2QqxBGS5)
+—————————————
+.
+.
+‏#explorepage #usa #happy # #development video...](https://www.instagram.com/p/COCKoBdHu6W)
+- [Ignoring online marketing is like opening a business but not telling anyone.
+#webdesign #webdevelopment #onlineshopping ...](https://www.instagram.com/p/COCLWgsrivn)
+- [#marketing #development #business #mi_method #مهدی_پورخیاط #رضا_رحیمی #کسب_و_کار #مشاوره #ژورنال #مارکتینگ_آیدیا #انسان_...](https://www.instagram.com/p/COCLUvvBI5k)
+- [#countries #gdp #econ #economics #learnontiktok #development #colonialism #growth #sierraleone](https://www.instagram.com/p/COCLIKTJ889)
+- [Comment down the output of the following code without seeing explanation 👇🏼👇🏼👇🏼👇🏼👇🏼👇🏼👇🏼
+.
+Follow @codeguys...](https://www.instagram.com/p/COCLS2bAPwr)
 <!-- BLOG-POST-LIST:END -->
 
 
