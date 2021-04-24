@@ -45,12 +45,15 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Why do we waste so much time analyzing company culture??
-We need better People Analytics solutions that help everyone wo...](https://www.instagram.com/p/COBihuSjFCq)
-- [Don’t miss out on this mega opportunity to buy property in the most sought after overseas enclave of Grand City Kharian....](https://www.instagram.com/p/COBihbMgfrY)
-- [@ellandcricketclub #juniors in partnership with @procoachcricket was in full swing tonight. We absolutely love seeing th...](https://www.instagram.com/p/COBiOsYh-xa)
-- [End of Week 20 ☑️ #roofing #construction #buildingwork #buildingworks #renovation #building #extensions #decorating #dev...](https://www.instagram.com/p/COBiHiWLHxt)
-- [#roofing #construction #buildingwork #buildingworks #renovation #building #extensions #decorating #development #property...](https://www.instagram.com/p/COBiFvbrh8K)
+- [Did you know that the method in which we seek, acquire, and develop new skills needed to perform at a higher level and u...](https://www.instagram.com/p/COB3B3CF31d)
+- [Planning for the future. My dream since I was young has been to live in a place with crops of sugar cane and beautiful b...](https://www.instagram.com/p/COB23YgjgKj)
+- [My little niece at Netball Development, she did so well learning new skills ❤
+
+#niece #netball #development #skills #sat...](https://www.instagram.com/p/COB2oG8B9Vk)
+- [📌 As you begin to market towards other areas of the world, start with those whose economies are booming. Here are just ...](https://www.instagram.com/p/COB2at5riZs)
+- [Vote for car 
+#votefor  #development 
+#siddipetwithtrs  #harishannasainyamtelangana #trskcrarmy #ktrtrs #warangal #telan...](https://www.instagram.com/p/COB2QqxBGS5)
 <!-- BLOG-POST-LIST:END -->
 
 
