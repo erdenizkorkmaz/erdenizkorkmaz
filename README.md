@@ -45,14 +45,21 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Dijital Çağda Kariyer Seminerleri Nisan ayının son buluşması ile sizlerle 🎉🎉
+- [Topic: Why i would never get into another long term relationship 😒 
+Full video will be up tomorrow 8pm
 
-30 Nisan Cuma günü saat 17.00'da Funda B...](https://www.instagram.com/p/COFZ4gIFbZM)
-- [Have you got something you need to know about property development? Make sure you drop a comment below, we will be reply...](https://www.instagram.com/p/COFZ1ino7Mu)
-- [Don’t miss out on this mega opportunity to buy property in the most sought after overseas enclave of Grand City Kharian....](https://www.instagram.com/p/COFZzO6AH5w)
-- [See what i found....
-Follow 👉@the_engineerity](https://www.instagram.com/p/COFZnnkHCYA)
-- [More jumping videos from the other day of my owner convincing me to jump a bench. We made a fake one between the wings a...](https://www.instagram.com/p/COFZmMbHgfs)
+Active every da...](https://www.instagram.com/p/COFufqGHFXM)
+- [Image of updated  stunning 41 guest rooms hotel in East Street, London submitted to the local authorities by Ko Architec...](https://www.instagram.com/p/COFuflusGhg)
+- [Rundown Apple trade : 
+
+1 - Identify the trend on the weekly time frame, it’s bullish since 2019 
+
+2- Identify most rece...](https://www.instagram.com/p/COFubnTnukS)
+- [Зачем инвестировать и подходит ли это мне?
+
+Допустим, у вас есть вклад в банке, но вас не устраивают проценты, они слишк...](https://www.instagram.com/p/COFuXibJ46D)
+- [colorful raffia
+#raffia #bagsdesigner #shoedesign #fashionstyle #natural #trimmings #recycled #sutainablefashion #shoema...](https://www.instagram.com/p/COFtaPzApeI)
 <!-- BLOG-POST-LIST:END -->
 
 
