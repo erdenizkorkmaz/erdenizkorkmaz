@@ -45,41 +45,14 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [💻 Diseño Páginas Web - Tiendas Virtuales - Aulas Virtuales (Moodle, Chamilo, etc) - Sistemas CRM📅 y ERP 📊
+- [Dijital Çağda Kariyer Seminerleri Nisan ayının son buluşması ile sizlerle 🎉🎉
 
-📅 Licenci...](https://www.instagram.com/p/COFFT29nrod)
-- [Your avengers tower is deployed sir
-FOLLOW! @vi_programmer for daily memes.
-.
-.
-.
-#programmer #programming #coding #deve...](https://www.instagram.com/p/COFFIwigadj)
-- [Bachh gye 💃
-
-Find relatable share in your story♥️
-FOLLOW ~ @paaro_tweets 💫
-Help me to reach 1k 🤝
-.
-..
-.
-
-.
-.
-..
-...
-#...](https://www.instagram.com/p/COFFIu8nS_R)
-- [Double tap ❤️ and leave'Amen'if you agree 🔥
-.
-Goal: 500 followers 🎯
-.
-Follow 👉@smart.mindsets
-Follow 👉@smart.mindset...](https://www.instagram.com/p/COFFH0Sl-rD)
-- [True.. Kis kis ke saath hota hai? 
-
-Find relatable share in your story♥️
-FOLLOW ~ @priyuu_701 💫
-Help me to reach 1k 🤝
-...](https://www.instagram.com/p/COFE2kMnIRD)
+30 Nisan Cuma günü saat 17.00'da Funda B...](https://www.instagram.com/p/COFZ4gIFbZM)
+- [Have you got something you need to know about property development? Make sure you drop a comment below, we will be reply...](https://www.instagram.com/p/COFZ1ino7Mu)
+- [Don’t miss out on this mega opportunity to buy property in the most sought after overseas enclave of Grand City Kharian....](https://www.instagram.com/p/COFZzO6AH5w)
+- [See what i found....
+Follow 👉@the_engineerity](https://www.instagram.com/p/COFZnnkHCYA)
+- [More jumping videos from the other day of my owner convincing me to jump a bench. We made a fake one between the wings a...](https://www.instagram.com/p/COFZmMbHgfs)
 <!-- BLOG-POST-LIST:END -->
 
 
