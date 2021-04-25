@@ -45,37 +45,41 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Fall in love with the #dominicanrepublic 🇩🇴🥰
+- [💻 Diseño Páginas Web - Tiendas Virtuales - Aulas Virtuales (Moodle, Chamilo, etc) - Sistemas CRM📅 y ERP 📊
 
-Posted @withregram • @mirexrd Dominican Republic 🇩🇴 is bordered by im...](https://www.instagram.com/p/COEwiZzFC5s)
-- [GIVEAWAY
-I
-I
-I
-2 MONTHS CODECADEMY SUBSCRIPTION
-I
-I
-I
-CRITERIA:
-Mention in comments
-I
-I
-I
-Follow us for more
-@friend.bro...](https://www.instagram.com/p/COEwrG4gLeH)
-- [➡️ E-commerce website in php
+📅 Licenci...](https://www.instagram.com/p/COFFT29nrod)
+- [Your avengers tower is deployed sir
+FOLLOW! @vi_programmer for daily memes.
+.
+.
+.
+#programmer #programming #coding #deve...](https://www.instagram.com/p/COFFIwigadj)
+- [Bachh gye 💃
 
-➡️ For electrical shop
+Find relatable share in your story♥️
+FOLLOW ~ @paaro_tweets 💫
+Help me to reach 1k 🤝
+.
+..
+.
 
-➡️ Admin panel
+.
+.
+..
+...
+#...](https://www.instagram.com/p/COFFIu8nS_R)
+- [Double tap ❤️ and leave'Amen'if you agree 🔥
+.
+Goal: 500 followers 🎯
+.
+Follow 👉@smart.mindsets
+Follow 👉@smart.mindset...](https://www.instagram.com/p/COFFH0Sl-rD)
+- [True.. Kis kis ke saath hota hai? 
 
-➡️ DM for more details and more projects.
-
-#phpdev...](https://www.instagram.com/p/COEwZ4XDTs3)
-- [✍️समस्या का दूसरा पहलू
-
-पिता ऑफिस का काम करने में व्यस्त था. उसका 10 साल का बच्चा बार-बार कोई सा कोई सवाल लेकर उसके पास ...](https://www.instagram.com/p/COEwWaGhPyk)
-- [#development](https://www.instagram.com/p/COEwUoJlJK-)
+Find relatable share in your story♥️
+FOLLOW ~ @priyuu_701 💫
+Help me to reach 1k 🤝
+...](https://www.instagram.com/p/COFE2kMnIRD)
 <!-- BLOG-POST-LIST:END -->
 
 
