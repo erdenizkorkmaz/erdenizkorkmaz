@@ -45,23 +45,37 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [“Programming isn't about what you know; it's about what you can figure out.”⁣
-― Chris Pine⁣
-⁣•
-•
-#flutter #android #ios ...](https://www.instagram.com/p/COEb_3tnZo6)
-- [I can change the world! 
-01001001 00100000 01100011 01100001 01101110 00100000 01100011 01101000 01100001 01101110 01100...](https://www.instagram.com/p/COEb7fQHR_D)
-- [🖥🖱 Desarrollamos #appsco para diferentes tipos de #negocios y #empresas. #caliescali #carrerasdelfuturo #decaliaehabla...](https://www.instagram.com/p/COEbgGyB-jV)
-- [Be strong and grounded, keep growing like a century tree☺️
+- [Fall in love with the #dominicanrepublic 🇩🇴🥰
 
-📸 By black and white sister▶️ @roseannbayrante 🤣
-.
-.
-.
-.
-....](https://www.instagram.com/p/COEbEyYnhtn)
-- [Sun never die is Sunday.](https://www.instagram.com/p/COEawwYHhfV)
+Posted @withregram • @mirexrd Dominican Republic 🇩🇴 is bordered by im...](https://www.instagram.com/p/COEwiZzFC5s)
+- [GIVEAWAY
+I
+I
+I
+2 MONTHS CODECADEMY SUBSCRIPTION
+I
+I
+I
+CRITERIA:
+Mention in comments
+I
+I
+I
+Follow us for more
+@friend.bro...](https://www.instagram.com/p/COEwrG4gLeH)
+- [➡️ E-commerce website in php
+
+➡️ For electrical shop
+
+➡️ Admin panel
+
+➡️ DM for more details and more projects.
+
+#phpdev...](https://www.instagram.com/p/COEwZ4XDTs3)
+- [✍️समस्या का दूसरा पहलू
+
+पिता ऑफिस का काम करने में व्यस्त था. उसका 10 साल का बच्चा बार-बार कोई सा कोई सवाल लेकर उसके पास ...](https://www.instagram.com/p/COEwWaGhPyk)
+- [#development](https://www.instagram.com/p/COEwUoJlJK-)
 <!-- BLOG-POST-LIST:END -->
 
 
