@@ -45,27 +45,18 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Find by Comparision using Python
-#Interviewpreprationseries
+- [Just bits from Sunday 
+With the U12s gaining momentum with another win and shots from the U11s in their friendly while y...](https://www.instagram.com/p/COI8o5Kg5Hy)
+- [🧖🏼‍♀️The only image we took of the en-suite, but considering we didn’t get to pick our choices, these tiles are 100% a...](https://www.instagram.com/p/COI8odlL_OW)
+- [Wie schnell der kleine Marly einfach gewachsen ist und sich verändert hat ist unglaublich. Ich bin ja mal gespannt, wie ...](https://www.instagram.com/p/COI8oHwppxy)
+- [Ricordi su pellicola di quei pochi momenti liberi vissuti in quest'anno.
 .
 .
 .
-.
-.
-.
-#developer #development #coder #coding #computer...](https://www.instagram.com/p/COIoAv5lpxH)
-- [Joint Venture Opportunity in West Heath 
-
-No planning permission granted as of yet, but initial conversation with the co...](https://www.instagram.com/p/COIn8lUlZtA)
-- [We took inspiration from pop artists to counteract and enhance the black and white interior
-
-@quintainliving](https://www.instagram.com/p/COIn8l4j1MT)
-- [UI and UX ☁️
-
-If an application is poorly designed, there will be an increased need for training, documentation, and sup...](https://www.instagram.com/p/COIn5eBFwuX)
-- [Ďalší park je v realizácii, tentokrát pod taktovkou developera Lucron v Urban Residence.
-
-Another park is under construc...](https://www.instagram.com/p/COIn2oVL8fb)
+#filmphotography #film #development #deve...](https://www.instagram.com/p/COI8mofl347)
+- [📣Podstawowa technika komunikacji📣
+🆙🆙🆙🆙🆙🆙🆙🆙🆙🆙🆙🆙
+#communication #happy #goodvibes #goodmood #communicationsk...](https://www.instagram.com/p/COI8f_1jWXe)
 <!-- BLOG-POST-LIST:END -->
 
 
