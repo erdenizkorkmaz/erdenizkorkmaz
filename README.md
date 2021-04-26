@@ -45,31 +45,33 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [🇦🇪🇮🇩
-الإمارات و إندونيسيا 45 عامًا من التعاون والعلاقات الاستراتيجية وشراكات متنامية
-
-معالي الدكتور عبدالله محمد بلح...](https://www.instagram.com/p/COH-xQpJw-m)
-- [** NEW CLASS WHITSTABLE **
-
-Developing Baby 6 Week Course
-
-Starts 9th June for 6 weeks 9:45-11:45am
-
-Umbrella Centre Lou...](https://www.instagram.com/p/COH-wMrgde3)
-- [Customer demands have changed so drastically that almost every business has been forced to focus on its online presence....](https://www.instagram.com/p/COH-tjXni06)
-- [The News
-Imagination To Reality
-More than 50+ Students join our free course 
-Join Now...
-
-#cutosoft
-
-#news #technology #...](https://www.instagram.com/p/COH-rTBA04n)
-- [Kickstart Your Career In Programming...
-Learn Various Programming Languages..
+- [lol 🤣🤣🤣
+👉Follow:@coding_lovers
 .
-For Admission-
-Enroll Now- https://e...](https://www.instagram.com/p/COH-jX8nuaJ)
+.
+.
+Turn on post notifications for more such posts 🔥 like this 
+.
+.
+.
+👉Follow: @c...](https://www.instagram.com/p/COITZaSALKS)
+- [#memories - 94°esimo anniversario della nascita di Anne McLaren (1927 - 2007)
+
+Oggi il doodle del più famoso motore di r...](https://www.instagram.com/p/COITYM7tOmU)
+- [C++ Cheater
+FOLLOW! @vi_programmer for daily memes.
+.
+.
+.
+#programmer #programming #coding #developer #coder #javascript...](https://www.instagram.com/p/COITSJrg9_U)
+- [Rise Up & Progress!
+
+#momo #motivationmonday 
+
+#riseupberesilientlikeyourerunningoutoftime 
+#beresilient #resilience 
+#r...](https://www.instagram.com/p/COITQ0NjhUW)
+- [We all experience and feel Stress in different ways. Most of the time, we view stress negatively. However, 𝘯𝘰𝘵 𝘢𝘭𝘭...](https://www.instagram.com/p/COITO9qD-R5)
 <!-- BLOG-POST-LIST:END -->
 
 
