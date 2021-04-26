@@ -45,18 +45,40 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Nice time
+- [Difference between Compiler VS interpreter 🔥🧠
 .
 .
-#motivation#bodybuilding#bodypositive#beauty #beautiful #gym #goodluck #styleblogger #development #fitness...](https://www.instagram.com/p/COHAmzbA6Nq)
-- [☀️ 🌱 💐 🌎 💧 
+.
+Follow 👉@code_rking
+.
+.
+.
 
-My wife, @ashleywleczyk7 and I LOVE ❤️ @crescent_pointe_apartments because it's a friendly and welcomin...](https://www.instagram.com/p/COHANLinJM8)
-- [Ideate, innovate and implement. With DigiGround's value-added solutions, we offer stringent focus on compliance and qual...](https://www.instagram.com/p/COHAEVkpgPQ)
-- [We did this UI programming for the famous company Spontex. 
+.
+#developer #development #coder #codi...](https://www.instagram.com/p/COHVh5iniaI)
+- [Happy Sunday..! #funnpictures 
 
-Using an entirely different programming of most of the mark...](https://www.instagram.com/p/COG_3maB87p)
-- [Great weekend of baseball with my guys...also got to compete against my old teammates @zackdom2011 @webgemniko. Back to ...](https://www.instagram.com/p/COG_07aATgB)
+Our team working hard to finalized framing stage at our #customhome built in #saratoga ....](https://www.instagram.com/p/COHVYLCAQsf)
+- [#Web #Design and #Development
+#Ecommerce #Development
+#Web #Application #Development
+#Mobile #App (#Android & #iPhone)
+#...](https://www.instagram.com/p/COHVfUPgo9X)
+- [You should know
+
+.
+.
+.
+.
+Do Follow us for daily updates and exclusive content @std.corner 👨🏻‍🎓👩🏻‍🎓
+.
+.
+.
+#normalpe...](https://www.instagram.com/p/COHVNelrfuW)
+- [Follow 👉@dev.at.work 👈 for daily dose of coding humour and programming memes
+.
+.
+#developer #developers #developerlife...](https://www.instagram.com/p/COHVFKpjgeU)
 <!-- BLOG-POST-LIST:END -->
 
 
