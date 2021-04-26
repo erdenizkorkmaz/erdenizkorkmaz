@@ -45,22 +45,31 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Коттеджный поселок Изумрудный Город
+- [🇦🇪🇮🇩
+الإمارات و إندونيسيا 45 عامًا من التعاون والعلاقات الاستراتيجية وشراكات متنامية
 
-Основные плюсы
+معالي الدكتور عبدالله محمد بلح...](https://www.instagram.com/p/COH-xQpJw-m)
+- [** NEW CLASS WHITSTABLE **
 
-- Транспортная доступность
-- Развитая инфраструктура
-- Экологически...](https://www.instagram.com/p/COHqGb9lbIc)
-- [Sᴍᴀʟʟ sᴛᴇᴘs ᴛᴏ ɢʀᴇᴀᴛ sᴜᴄᴄᴇss
+Developing Baby 6 Week Course
 
-This week we are pressing on with our refurb, I’m trying to ensure nothing goes wrong 😩 (...](https://www.instagram.com/p/COHqFTwllKU)
-- [Evening doggie walk through the 'burbs...such a gorgeous moonrise 😍🤍🌚🌛
+Starts 9th June for 6 weeks 9:45-11:45am
+
+Umbrella Centre Lou...](https://www.instagram.com/p/COH-wMrgde3)
+- [Customer demands have changed so drastically that almost every business has been forced to focus on its online presence....](https://www.instagram.com/p/COH-tjXni06)
+- [The News
+Imagination To Reality
+More than 50+ Students join our free course 
+Join Now...
+
+#cutosoft
+
+#news #technology #...](https://www.instagram.com/p/COH-rTBA04n)
+- [Kickstart Your Career In Programming...
+Learn Various Programming Languages..
 .
-.
-#moon #walking #warkworthnz #housing #rur...](https://www.instagram.com/p/COHqC-6Masd)
-- [Unwrap yourself the gift of new and prospering business. Join the webarentor team the see the results of your hard work....](https://www.instagram.com/p/COHqBHXLY-y)
-- [Congratulations on our recent intakes to Wild Geese Group (WGG) for completing their next phase of development. Both Kei...](https://www.instagram.com/p/COHqAPrhJtN)
+For Admission-
+Enroll Now- https://e...](https://www.instagram.com/p/COH-jX8nuaJ)
 <!-- BLOG-POST-LIST:END -->
 
 
