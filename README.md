@@ -45,33 +45,27 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [lol 🤣🤣🤣
-👉Follow:@coding_lovers
+- [Find by Comparision using Python
+#Interviewpreprationseries
 .
 .
 .
-Turn on post notifications for more such posts 🔥 like this 
 .
 .
 .
-👉Follow: @c...](https://www.instagram.com/p/COITZaSALKS)
-- [#memories - 94°esimo anniversario della nascita di Anne McLaren (1927 - 2007)
+#developer #development #coder #coding #computer...](https://www.instagram.com/p/COIoAv5lpxH)
+- [Joint Venture Opportunity in West Heath 
 
-Oggi il doodle del più famoso motore di r...](https://www.instagram.com/p/COITYM7tOmU)
-- [C++ Cheater
-FOLLOW! @vi_programmer for daily memes.
-.
-.
-.
-#programmer #programming #coding #developer #coder #javascript...](https://www.instagram.com/p/COITSJrg9_U)
-- [Rise Up & Progress!
+No planning permission granted as of yet, but initial conversation with the co...](https://www.instagram.com/p/COIn8lUlZtA)
+- [We took inspiration from pop artists to counteract and enhance the black and white interior
 
-#momo #motivationmonday 
+@quintainliving](https://www.instagram.com/p/COIn8l4j1MT)
+- [UI and UX ☁️
 
-#riseupberesilientlikeyourerunningoutoftime 
-#beresilient #resilience 
-#r...](https://www.instagram.com/p/COITQ0NjhUW)
-- [We all experience and feel Stress in different ways. Most of the time, we view stress negatively. However, 𝘯𝘰𝘵 𝘢𝘭𝘭...](https://www.instagram.com/p/COITO9qD-R5)
+If an application is poorly designed, there will be an increased need for training, documentation, and sup...](https://www.instagram.com/p/COIn5eBFwuX)
+- [Ďalší park je v realizácii, tentokrát pod taktovkou developera Lucron v Urban Residence.
+
+Another park is under construc...](https://www.instagram.com/p/COIn2oVL8fb)
 <!-- BLOG-POST-LIST:END -->
 
 
