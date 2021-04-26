@@ -45,40 +45,22 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [Difference between Compiler VS interpreter 🔥🧠
-.
-.
-.
-Follow 👉@code_rking
-.
-.
-.
+- [Коттеджный поселок Изумрудный Город
 
-.
-#developer #development #coder #codi...](https://www.instagram.com/p/COHVh5iniaI)
-- [Happy Sunday..! #funnpictures 
+Основные плюсы
 
-Our team working hard to finalized framing stage at our #customhome built in #saratoga ....](https://www.instagram.com/p/COHVYLCAQsf)
-- [#Web #Design and #Development
-#Ecommerce #Development
-#Web #Application #Development
-#Mobile #App (#Android & #iPhone)
-#...](https://www.instagram.com/p/COHVfUPgo9X)
-- [You should know
+- Транспортная доступность
+- Развитая инфраструктура
+- Экологически...](https://www.instagram.com/p/COHqGb9lbIc)
+- [Sᴍᴀʟʟ sᴛᴇᴘs ᴛᴏ ɢʀᴇᴀᴛ sᴜᴄᴄᴇss
 
+This week we are pressing on with our refurb, I’m trying to ensure nothing goes wrong 😩 (...](https://www.instagram.com/p/COHqFTwllKU)
+- [Evening doggie walk through the 'burbs...such a gorgeous moonrise 😍🤍🌚🌛
 .
 .
-.
-.
-Do Follow us for daily updates and exclusive content @std.corner 👨🏻‍🎓👩🏻‍🎓
-.
-.
-.
-#normalpe...](https://www.instagram.com/p/COHVNelrfuW)
-- [Follow 👉@dev.at.work 👈 for daily dose of coding humour and programming memes
-.
-.
-#developer #developers #developerlife...](https://www.instagram.com/p/COHVFKpjgeU)
+#moon #walking #warkworthnz #housing #rur...](https://www.instagram.com/p/COHqC-6Masd)
+- [Unwrap yourself the gift of new and prospering business. Join the webarentor team the see the results of your hard work....](https://www.instagram.com/p/COHqBHXLY-y)
+- [Congratulations on our recent intakes to Wild Geese Group (WGG) for completing their next phase of development. Both Kei...](https://www.instagram.com/p/COHqAPrhJtN)
 <!-- BLOG-POST-LIST:END -->
 
 
