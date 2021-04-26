@@ -45,28 +45,18 @@
 
 ## Latest Instagram Posts
 <!-- BLOG-POST-LIST:START -->
-- [You will be celebrating your victory soon with loved ones. The love, passion, determination and courage you’ve directed ...](https://www.instagram.com/p/COGDCCZnTrX)
-- [Limerick Lake 《》 Drone Footage Part 2 📸
+- [Nice time
 .
 .
-.
-.
-.
-.
-.
-.
-.
-#royadesigns #development #limericklake #droneshots #photogra...](https://www.instagram.com/p/COGDAywBdI3)
-- [Who can you tell this to today? You don't need to be a coach to reinforce this in others. We ALL need to hear this often...](https://www.instagram.com/p/COGDAO5nStG)
-- [Why Should You Learn To Code When You Are Young? 👶
+#motivation#bodybuilding#bodypositive#beauty #beautiful #gym #goodluck #styleblogger #development #fitness...](https://www.instagram.com/p/COHAmzbA6Nq)
+- [☀️ 🌱 💐 🌎 💧 
 
-Bill Gates wrote his first software program at the age of 13.
-If yo...](https://www.instagram.com/p/COGC8faB_RS)
-- [First, you probably should know what Spending Plans are…
+My wife, @ashleywleczyk7 and I LOVE ❤️ @crescent_pointe_apartments because it's a friendly and welcomin...](https://www.instagram.com/p/COHANLinJM8)
+- [Ideate, innovate and implement. With DigiGround's value-added solutions, we offer stringent focus on compliance and qual...](https://www.instagram.com/p/COHAEVkpgPQ)
+- [We did this UI programming for the famous company Spontex. 
 
-***Spending Plans***
-
-A spending plan (also called a budget) i...](https://www.instagram.com/p/COGC68ZFF2q)
+Using an entirely different programming of most of the mark...](https://www.instagram.com/p/COG_3maB87p)
+- [Great weekend of baseball with my guys...also got to compete against my old teammates @zackdom2011 @webgemniko. Back to ...](https://www.instagram.com/p/COG_07aATgB)
 <!-- BLOG-POST-LIST:END -->
 
 
