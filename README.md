@@ -1,6 +1,6 @@
 <img src="https://media.giphy.com/media/BlWF2vzpIPB0A/giphy.gif"  width="250" align="right"/>
 
-## Hi there, I'm Erdeniz from Manchester 👋
+## Hi there, I'm Erdeniz and I'm a Web Developer 👋
 
 ### Web Developer | Streamer
 
