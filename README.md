@@ -1,6 +1,6 @@
 ## Hi there, I'm Erdeniz and I'm a Fullstack Developer 👋
 
-### Fullstack Developer | Streamer
+### Fullstack Developer
 
 <font color="yellow">You can find me at the middle of the night while drinking coffee and fixing bugs</font>
 <br/>
