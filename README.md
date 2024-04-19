@@ -3,18 +3,16 @@
 ### Fullstack Developer | Streamer
 
 <font color="yellow">You can find me at the middle of the night while drinking coffee and fixing bugs</font>
-
 <br/>
-
+<br/>
 ### Reach Me
 
 [<img src="https://img.shields.io/badge/Mail-0078D4?style=for-the-badge&logo=microsoft-outlook&logoColor=white"/>][mail]
 [<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white"/>][linkedin]
-
-
+<br/>
 <br/>
 
-## Techs I Use
+### Programming
 
 ![.NET](https://img.shields.io/badge/.NET-512BD4?style=for-the-badge&logo=dotnet&logoColor=white)
 ![Python](https://img.shields.io/badge/Python-3776AB?style=for-the-badge&logo=python&logoColor=white)
@@ -37,6 +35,9 @@
 ![Bootstrap](https://img.shields.io/badge/Bootstrap-7952B3?style=for-the-badge&logo=bootstrap&logoColor=white)
 <br/>
 <br/>
+
+### Visual Tech
+
 ![Figma](https://img.shields.io/badge/Figma-F24E1E?style=for-the-badge&logo=figma&logoColor=white)
 ![Canva](https://img.shields.io/badge/Canva-00C4CC?style=for-the-badge&logo=canva&logoColor=white)
 ![Photoshop](https://img.shields.io/badge/Photoshop-31A8FF?style=for-the-badge&logo=adobe-photoshop&logoColor=white)
