@@ -8,8 +8,8 @@
 
 ### Reach Me
 
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/gmail.svg" />][mail]
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/linkedin.svg" />][linkedin]
+[<img width="48" height="48" src="https://img.icons8.com/fluency/48/mail--v1.png" alt="mail--v1"/>][mail]
+[<img width="48" height="48" src="https://img.icons8.com/fluency/48/linkedin.png" alt="mail--v1"/>][linkedin]
 
 <br/>
 
