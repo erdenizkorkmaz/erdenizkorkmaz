@@ -1,5 +1,3 @@
-<img src="https://media.giphy.com/media/BlWF2vzpIPB0A/giphy.gif"  width="250" align="right"/>
-
 ## Hi there, I'm Erdeniz and I'm a Web Developer 👋
 
 ### Web Developer | Streamer
@@ -10,9 +8,8 @@
 
 ### Reach Me
 
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitter.svg" />][twitter]
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/twitch.svg" />][twitch]
-[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/instagram.svg" />][instagram]
+[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/gmail.svg" />][mail]
+[<img height="32" width="32" src="https://unpkg.com/simple-icons@v4/icons/linkedin.svg" />][linkedin]
 
 <br/>
 
@@ -28,12 +25,6 @@
 
 <br/>
 <br/>
-<br/>
-
-<details>
-    <summary>Github Stats</summary>
-    <img src="https://github-readme-stats.vercel.app/api?username=erdenizkorkmaz">
-</details>
 
 <details>
     <summary>Most Used Languages</summary>
@@ -44,8 +35,7 @@
 <br/>
 
 
-[twitter]: https://twitter.com/erdenizkorkmaz_
-[twitch]: https://www.twitch.tv/erdenizkorkmaz
-[instagram]: https://www.instagram.com/erdenizkorkmaz_
+[mail]: mailto:erdeniz@dakik.co.uk
+[linkedin]: https://www.linkedin.com/in/erdenizkorkmaz/
 
 
