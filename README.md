@@ -15,7 +15,7 @@
 
 ## Techs I Use
 
-<img width="48" height="48" src="https://img.icons8.com/color/48/typescript.png" alt="typescript"/><img width="48" height="48" src="https://img.icons8.com/color/48/angularjs.png" alt="angularjs"/><img width="48" height="48" src="https://img.icons8.com/color/48/react-native.png" alt="react-native"/><img width="48" height="48" src="https://img.icons8.com/color/48/python--v2.png" alt="python--v2"/><img align="left" height="32" width="32" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png">
+<img width="48" height="48" src="https://img.icons8.com/color/48/typescript.png" alt="typescript"/><img width="48" height="48" src="https://img.icons8.com/color/48/angularjs.png" alt="angularjs"/><img width="48" height="48" src="https://img.icons8.com/color/48/react-native.png" alt="react-native"/><img width="48" height="48" src="https://img.icons8.com/color/48/python--v2.png" alt="python--v2"/><img height="48" width="48" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png">
 <br/>
 <br/>
 
