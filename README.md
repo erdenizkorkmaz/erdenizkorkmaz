@@ -58,7 +58,17 @@
 <br/>
 <br/>
 
-<img src="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=compact">
+<picture>
+  <source
+    srcset="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=donut&show_icons=true&theme=dark&size_weight=0.1&count_weight=0.9"
+    media="(prefers-color-scheme: dark)"
+  />
+  <source
+    srcset="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=donut&show_icons=true&size_weight=0.1&count_weight=0.9"
+    media="(prefers-color-scheme: light), (prefers-color-scheme: no-preference)"
+  />
+  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=erdenizkorkmaz&layout=donut&show_icons=true&size_weight=0.1&count_weight=0.9" />
+</picture>
 
 <br/>
 <br/>
