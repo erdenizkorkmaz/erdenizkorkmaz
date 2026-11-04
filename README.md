@@ -1,4 +1,5 @@
 ## Hi there, I'm Erdeniz and I'm a Fullstack Developer 👋
+## This account is no longer active. Please check @erdenizko for recent updates
 
 ### Fullstack Developer
 
